@@ -1,1 +1,1 @@
-https://AkzhanBerdi.github.io/rsschool-cv/cv
+https://AkzhanBerdi.github.io/my_cv/cv
